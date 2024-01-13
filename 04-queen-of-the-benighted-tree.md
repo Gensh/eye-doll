@@ -1,3 +1,9 @@
+The massive doors of the Grand Library swung open at once. Only a faint light streamed in from outside as the Dolores puppet entered. Her missing fingers and outfit were replaced, though the sleeves and boots were missing for some reason. There was neither bow nor arrows nor any weapon at all. A moment after her entry, the doors gently closed on their own, seeming to bend and shift like living flesh. The doll's porcelain feet trod over the ancient rug which led to the center of the chamber.
+
+In spite of the darkness, she looked about with intent. Gazing between towering bookshelves and pillars which could hold up the sky, a body almost went unnoticed. One of the Academy's students tried to grab at her foot. "Dolores" swung her foot backward with a sharp bounce. A young woman looked up at her vacantly, as empty as the puppet was possessed. The sorcerer's eyes were dull gold like the Tarnished. Yet the Library had been sealed too long for that. This was neither an individual who had been trapped, nor one of the last to return. This woman had been reborn as something incompatible with her nature.
+
+
+
 ## Outline
 
 - Marika immediately understands the gimmick. Show her death point gimmick. Elegant and efficient.
