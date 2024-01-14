@@ -5,3 +5,4 @@
 - Keeps trying hard not to think about consequences. The Greater Will giveth, and the Greater Will taketh away.
 - Impressed by Marika's spirit, in respect of an apex predator thinking an angry kitten is funny.
 - Doesn't really listen to her. It's his job to guard and guide her; not to indulge her. This is opposite his later behavior.
+- Young Marika has the same role as Shanalotte as an artificial maiden.
